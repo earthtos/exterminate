@@ -1,2 +1,0 @@
-# exterminate
-dr. who
